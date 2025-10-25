@@ -1,4 +1,4 @@
-[strawpage](https://picojutsu.straw.page)  ☀️
+[strawpage](https://picojutsu.straw.page)  ☀️ [atabook](https://picojutsu.atabook.org/)
 
 
 "I know that's how you feel Naruto: You feel lonely and it hurts inside. And i could've been there for you more...
