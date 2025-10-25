@@ -3,11 +3,12 @@
 
 "I know that's how you feel Naruto: You feel lonely and it hurts inside. And i could've been there for you more...
 
-![tumblr_59ab740287c33841bf879af314d7072d_1ff8aada_500](https://github.com/user-attachments/assets/d9612bf9-3403-4774-a662-fbddc95004ae)  <img width="230" height="272" alt="image" src="https://github.com/user-attachments/assets/412b8b35-7a39-47b4-b9d2-8c5a48ed29e2" />
+![tumblr_59ab740287c33841bf879af314d7072d_1ff8aada_500](https://github.com/user-attachments/assets/d9612bf9-3403-4774-a662-fbddc95004ae)  <img width="230" height="272" alt="image" src="https://github.com/user-attachments/assets/412b8b35-7a39-47b4-b9d2-8c5a48ed29e2" />  <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/bedbbcee-854a-4eff-8383-363af5062f2c" />
 
 
 
 I let you down. I'm sorry. No one should have to suffer that much. No one should be alone like that." 🐬 
+
 
 
 
