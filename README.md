@@ -3,7 +3,7 @@
 
 "I know that's how you feel Naruto: You feel lonely and it hurts inside. And i could've been there for you more...
 
-![tumblr_59ab740287c33841bf879af314d7072d_1ff8aada_500](https://github.com/user-attachments/assets/d9612bf9-3403-4774-a662-fbddc95004ae)  <img width="230" height="272" alt="image" src="https://github.com/user-attachments/assets/9c2c7d82-3a7c-4989-88ba-4a6ec7a90138" /> 
+![tumblr_59ab740287c33841bf879af314d7072d_1ff8aada_500](https://github.com/user-attachments/assets/d9612bf9-3403-4774-a662-fbddc95004ae)  <img width="230" height="272" alt="image" src="https://github.com/user-attachments/assets/412b8b35-7a39-47b4-b9d2-8c5a48ed29e2" />
 
 
 
@@ -19,7 +19,28 @@ I let you down. I'm sorry. No one should have to suffer that much. No one should
 
 
 
-<img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/9d13ef34-e046-4141-a960-b71a308aa663" />     ZABUKAKA #1 FAN    <img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/ce6aafba-82fe-4759-9edc-a3892a7ee015" />
+
+<img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/ca587567-1d05-46d1-90b1-a58761ca083b" />  <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/bfd31c23-5f5d-4a58-96e7-593c2ff22c49" /> <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/692b64a4-ced5-49ca-9788-7dbb5aac48bf" /> <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/b8e076cc-6ea0-4bd0-a02d-701dfe722648" />
+
+
+
+
+
+౿  ׂ   ִ     ⏳    ⁀   ˳ ⊹⠀⏱
+
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/9d13ef34-e046-4141-a960-b71a308aa663" />     zbkk #1 fan    <img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/ce6aafba-82fe-4759-9edc-a3892a7ee015" />
 
 
 
