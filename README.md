@@ -58,6 +58,8 @@ I let you down. I'm sorry. No one should have to suffer that much. No one should
 
 <img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/9d13ef34-e046-4141-a960-b71a308aa663" />     zbkk #1 fan    <img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/ce6aafba-82fe-4759-9edc-a3892a7ee015" />
 
+My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade and Gaara!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru tbd but im open to any ship as long as it isnt weird!! sasodei DNI i see them as brothers. I mostly care for familial relationships more !!
+
 
 
 
