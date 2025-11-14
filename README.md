@@ -60,7 +60,10 @@ I let you down. I'm sorry. No one should have to suffer that much. No one should
 
 ౿  ׂ   ִ     ⏳    ⁀   ˳ ⊹⠀⏱
 
-My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade and Gaara!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru tbd but im open to any ship as long as it isnt weird!! sasodei DNI i see them as brothers. I mostly care for familial relationships more !!
+My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade and Gaara!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru tbd but im open to any ship as long as it isnt weird!! sasodei DNI i see them as brothers. I mostly care for familial relationships more !! 
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/71fd757c-43f0-4075-8a23-098097a2fef7" /> <-- i draw ^_^ i love artbros 
+
 
 
 
