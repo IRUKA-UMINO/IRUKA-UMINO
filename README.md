@@ -69,6 +69,7 @@ My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Zabuza and Haku
 
 MAIN: [@PLASMASHIPPING](https://github.com/PLASMASHIPPING) <img width="200" height="200" alt="tumblr_c3c2683fa3f50707ef564b679a68cf98_a6894b71_500" src="https://github.com/user-attachments/assets/40db6716-8b20-4213-a084-d527c560d71a" />  <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/765c0c4f-717f-4dad-83ba-075eec00c3b0" />
 
+don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact.
 
 
 
