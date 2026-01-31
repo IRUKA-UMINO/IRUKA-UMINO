@@ -13,27 +13,18 @@ I let you down. I'm sorry. No one should have to suffer that much. No one should
 
 <img width="144" height="200" alt="image" src="https://github.com/user-attachments/assets/877a5d82-b914-4179-8dec-398b913c17af" />  <img width="211" height="280" alt="image" src="https://github.com/user-attachments/assets/306b6d8e-228f-4c58-8cb1-bb77c1cabd52" />  <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/85dd5b53-549a-4bd7-afaa-23cdd33822ee" />  
 
-  ![tumblr_68f6d8557b08e7f97fb03d4d0a0046cb_deb87e75_100](https://github.com/user-attachments/assets/e21f6684-63f9-4b40-bd84-7f1e0ce6891d)  ![tumblr_c08505ca19d08c6926057c33b3845b24_7b222a4a_100](https://github.com/user-attachments/assets/ad8f7760-0cae-4517-bf86-4f9dd4af0941)  ![tumblr_555e3fd25b75deebe35211ccdde4b08c_ead2ea04_250](https://github.com/user-attachments/assets/0e285fcc-d083-4c84-92bd-1020b136cafd) <img width="100" height="100" alt="tumblr_6125333cbb56ee5b8e4fa6f9e7defe4e_5c3f1dee_400" src="https://github.com/user-attachments/assets/8a439d2a-4ec3-4f85-8dec-ce454fe32864" />  <img width="100" height="100" alt="tumblr_2a2bf86a36e9aff113f75ec32a1ad3f9_1ea11003_100" src="https://github.com/user-attachments/assets/975d6dee-e2a4-49ba-8137-346b6adc1c13" />  <img width="100" height="100" alt="tumblr_14d1cd8abb20357c6ca870a9d969abe6_ba20869c_1280" src="https://github.com/user-attachments/assets/b5c76320-4fee-4a2a-b8af-7376d003a05a" /> <img width="150" height="100" alt="image" src="https://github.com/user-attachments/assets/09422ac3-038c-416f-9d0e-f7b9f6e12875" /> ![tumblr_21cf7d4c8149314088ec0bf557213a7d_19ff3dab_100](https://github.com/user-attachments/assets/ba5dca7e-605e-40fa-b61f-bc0bfa30e374) 
+  ![tumblr_68f6d8557b08e7f97fb03d4d0a0046cb_deb87e75_100](https://github.com/user-attachments/assets/e21f6684-63f9-4b40-bd84-7f1e0ce6891d)  ![tumblr_c08505ca19d08c6926057c33b3845b24_7b222a4a_100](https://github.com/user-attachments/assets/ad8f7760-0cae-4517-bf86-4f9dd4af0941)  ![tumblr_555e3fd25b75deebe35211ccdde4b08c_ead2ea04_250](https://github.com/user-attachments/assets/0e285fcc-d083-4c84-92bd-1020b136cafd) <img width="150" height="100" alt="image" src="https://github.com/user-attachments/assets/09422ac3-038c-416f-9d0e-f7b9f6e12875" /> ![tumblr_21cf7d4c8149314088ec0bf557213a7d_19ff3dab_100](https://github.com/user-attachments/assets/ba5dca7e-605e-40fa-b61f-bc0bfa30e374) 
 
 <img width="81" height="81" alt="image" src="https://github.com/user-attachments/assets/dc01cbd4-f528-4890-aee1-3326dd416f0d" /> ![tumblr_3bd85845ea33b9e46f093e60ab6ac368_10a71ffc_100](https://github.com/user-attachments/assets/ad308e64-ab04-4ccf-bf61-bbb54160905c)  <img width="99" height="59" alt="tumblr_6cfe40fca87d7f99cec66bca137c1012_b10d2fc3_100" src="https://github.com/user-attachments/assets/b91b1a85-7fbb-4854-81a3-d529ed13751f" /> 
 
 
-<img width="71" height="71" alt="image" src="https://github.com/user-attachments/assets/cb9e1adb-aaea-47c7-9c5d-35894efd7338" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/e2f8ab26-db65-4760-ac35-8a656ad1d9ea" /> <img width="101" height="101" alt="image" src="https://github.com/user-attachments/assets/b485ebc7-bf31-4d00-be23-be68e3d10328" /> 
+<img width="71" height="71" alt="image" src="https://github.com/user-attachments/assets/cb9e1adb-aaea-47c7-9c5d-35894efd7338" /> <img width="91" height="91" alt="image" src="https://github.com/user-attachments/assets/e2f8ab26-db65-4760-ac35-8a656ad1d9ea" /> <img width="101" height="101" alt="image" src="https://github.com/user-attachments/assets/b485ebc7-bf31-4d00-be23-be68e3d10328" /> ![tumblr_cdee41b1482495d52c815d854acf1c2f_bcba37ac_100](https://github.com/user-attachments/assets/ef54e9e3-91b7-47bb-a25c-52da37f5302c) 
 
 
 
 
 
-
-![tumblr_cdee41b1482495d52c815d854acf1c2f_bcba37ac_100](https://github.com/user-attachments/assets/ef54e9e3-91b7-47bb-a25c-52da37f5302c)  ![tumblr_a57542dc04e79ff3d0d19ffe9c41020a_bc2cefec_250](https://github.com/user-attachments/assets/12ce051f-73bd-4023-96aa-0a51f4e5425d)
-
-
-
-
-
-<img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/ca587567-1d05-46d1-90b1-a58761ca083b" />  <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/bfd31c23-5f5d-4a58-96e7-593c2ff22c49" /> <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/2cf971c1-81fe-49e2-8bd9-473e77a78700" /> <img width="200" height="272" alt="image" src="https://github.com/user-attachments/assets/b8e076cc-6ea0-4bd0-a02d-701dfe722648" />
-
-
+<img width="100" height="185" alt="image" src="https://github.com/user-attachments/assets/ca587567-1d05-46d1-90b1-a58761ca083b" />  <img width="100" height="172" alt="image" src="https://github.com/user-attachments/assets/bfd31c23-5f5d-4a58-96e7-593c2ff22c49" /> <img width="100" height="172" alt="image" src="https://github.com/user-attachments/assets/2cf971c1-81fe-49e2-8bd9-473e77a78700" /> 
 
 
 
@@ -52,11 +43,11 @@ I let you down. I'm sorry. No one should have to suffer that much. No one should
 
 
 
-<img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/9d13ef34-e046-4141-a960-b71a308aa663" />     zbkk #1 fan    <img width="250" height="207" alt="image" src="https://github.com/user-attachments/assets/ce6aafba-82fe-4759-9edc-a3892a7ee015" />
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/10ea297f-d134-425b-9b91-ffcba84f72ea" /> ZBKK #1 FAN <3
 
 ౿  ׂ   ִ     ⏳    ⁀   ˳ ⊹⠀⏱
 
-My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade and Gaara!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru tbd but im open to any ship as long as it isnt weird!! sasodei DNI i see them as brothers. I mostly care for familial relationships more !! 
+My favs are Iruka, team7 (YES including Yamato and Sai), Sasori, Deidara, Zabuza and Haku (DNI if you ship them), Shizune, Tsunade and Gaara!!!!! I like zbkk kkir ymkk inosaku shinokibahina gaanaru t/obd but im open to any ship as long as it isnt weird!! sasodei DNI i see them as brothers. I mostly care for familial relationships more !! 
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/71fd757c-43f0-4075-8a23-098097a2fef7" /> <-- i draw ^_^ i love artbros 
 
